@@ -1,13 +1,13 @@
 I am selling
-Rok Tracker + Title Giver
+Dkp Tracker Bot+ Title Giver Bot | Discord Stats Bot
 
 Here is my website for more information
 
 **Website**
-https://easystats.mystrikingly.com
+https://easystats.vip/
 
 **Discord**
-boss_2999
+easystats
 
 Rates is very cheap please viste my website
 
